@@ -5,7 +5,6 @@
  Esta serie me gusta porque se centra en un misterio muy complicado que un solo hombre tiene que resolver. Su nombre es Satoru y trabaja en un local repartiendo pizzas. Sin embargo, tiene la habilidad extraña de regresar en el tiempo cada vez que sucede algo malo a su alrededor. Cuando un niño se atraviesa una calle con su bicicleta, un hombre en un camión sufre de un ataque al corazon y pierde el control. Para prevenir la muerte a este niño, Satoru regresa 10 minutos en el tiempo y logra analizar la situación para salvarlo. Cuando llega a su casa ese día, descubre que su madre fue asesinada. Pero en lugar de regresar solo 10 minutos en el tiempo, regresa 10 años, cuando estaba en primaria. En esta época, había ocurrido un secuestro a una compañera de escuela suya. Para cambiar el futuro, Satoru deberá prevenir el asesinato y descubrir quien es el asesino, ya que teoriza que fue el mismo que mató a su madre. :100: :100:
 
  Puedes ver un resumen de 10 minutos de la serie en [ESTE VÍNCULO](https://www.netflix.com/us-es/title/80173711).
- https://www.youtube.com/watch?v=aPmSrAzTtkY
 
  ![Personajes](https://i.pinimg.com/originals/54/7e/54/547e54bc969620c3a20d87f65eeb47a3.jpg)
 
